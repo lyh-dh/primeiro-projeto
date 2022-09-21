@@ -1,5 +1,4 @@
-let rftrtyrf = "suhasushash;";
+var rftrkkskskskksyrf = pessoas
 
-let lista = [
-    1,2,3,4,5
-]
+var listaDeNumeros = [
+    1,2,3,4];
