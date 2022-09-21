@@ -1,9 +1,0 @@
-uiiuyhlokdpomikfidgjmoifmngf
-diofnmdon
-opfkdopfkpoiskdf
-okdfokdoksdfiokmodsmif
-dofkiomdskfiods
-olskdfopdskpofs
-kd0oifdiofkdosf
-fopidfoimdsoif
-dkfiodopds´pf.l´dspldp´fl.´pd.flpdlfç.´pdslf´pld´pfl.´pd,.sf´pd
